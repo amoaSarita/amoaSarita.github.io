@@ -1,2 +1,2 @@
-# wedesigner4everyoneproofstudent.github.io
+# amoaSarita.github.io
 My poof Website for Web Design For Everyone
